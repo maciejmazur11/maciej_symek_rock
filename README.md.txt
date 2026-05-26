@@ -1,0 +1,1 @@
+tiki  tiki tiki plakal ogolnie jestm z plocka
