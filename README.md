@@ -1,1 +1,1 @@
-pliki pliki pliki teeekstowe 
+xd pliki pliki pliki teeekstowe sigma
